@@ -1,0 +1,1 @@
+# 50-ways-to-get-rich-in-15-days
